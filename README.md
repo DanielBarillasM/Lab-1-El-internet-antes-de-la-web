@@ -1,1 +1,1 @@
-([Laboratorio 1_El internet antes de la web_WEB_Daniel Barillas_22193.pdf](https://github.com/DanielBarillasM/Lab-1-El-internet-antes-de-la-web/blob/5903c40d469baa6fbd061cbd08f93eb092966e57/Laboratorio%201_El%20internet%20antes%20de%20la%20web_WEB_Daniel%20Barillas_22193.pdf))
+([Laboratorio 1_El internet antes de la web_WEB_Daniel Barillas_22193.pdf](Laboratorio 1_El internet antes de la web_WEB_Daniel Barillas_22193.pdf))
